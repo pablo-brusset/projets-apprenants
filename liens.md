@@ -3,13 +3,13 @@
 ## Ruben :
 https://github.com/rubenavone/WikiRub
 
-## Kevin
+## Kevin :
 https://github.com/rubenavone/WikiRub
 
-## Sabrina 
+## Sabrina :
 https://github.com/sabrinapct 
 
-## Ioanna
+## Ioanna :
 https://github.com/Shivaeru
 
 
